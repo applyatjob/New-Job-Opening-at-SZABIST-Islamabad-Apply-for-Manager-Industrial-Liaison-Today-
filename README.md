@@ -4,6 +4,7 @@ SZABIST Islamabad University is offering a great opportunity for professionals! 
 If you have strong communication skills, industry knowledge, and leadership experience, this role is your chance to work with one of the most respected universities in Pakistan. You'll be responsible for building partnerships between the university and industry to support academic growth and career opportunities for students.
 
 **Location:** Islamabad
+
 **Position:** Manager Industrial Liaison
 
 **Interested?**
