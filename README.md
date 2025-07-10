@@ -10,5 +10,7 @@ If you have strong communication skills, industry knowledge, and leadership expe
 
 Visit www.applyatjob.com to apply now!
 Also, if you're currently searching for jobs, explore a wide range of listings on our platform. Find roles that match your qualification and interests, and take the next step in your career with ease.
+
 Smart search. Easy apply. Bright future.
+
 Only at ApplyatJob
